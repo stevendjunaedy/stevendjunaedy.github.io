@@ -1,2 +1,0 @@
-# stevendjunaedy.github.io
-project
